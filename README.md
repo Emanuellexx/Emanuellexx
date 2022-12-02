@@ -1,4 +1,4 @@
-### oii sou a manuzita &#128572;
+### oii sou a manu
 
 Cursando Desenvolvimento de Sistemas (DS)
 
